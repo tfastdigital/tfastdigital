@@ -38,7 +38,7 @@ I run **TFast Digital Agency**, a Ugandan software and web studio. I design, bui
 ### Connect
 
 - Business: **tfastdigital256@gmail.com**
-- Phone: **+256 751 399 620**
+- Phone: **0751399620** · +256 751 399 620
 - Open to: peer founders, technical collaborations, and honest product feedback — not cold sales pitches
 
 ---
