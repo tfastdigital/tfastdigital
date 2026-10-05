@@ -5,7 +5,7 @@
 
 Building websites, software tools and AI automation for small businesses in Uganda.
 
-[Website](https://tfastdigital.com) · [Email](mailto:tfastdigital256@gmail.com) · Kampala, Uganda
+[Website](https://tfastdigital.com) · [Email](mailto:tfastdigital256@gmail.com) · Kampala, Uganda · [+256 751 399 620](tel:+256751399620)
 
 </div>
 
